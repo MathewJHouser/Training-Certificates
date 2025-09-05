@@ -5,4 +5,5 @@ and executive staff need to address critical issues, meet the daily needs of the
 
 The Association provides orientation training and continuing education that addresses current issues and changes in state law. 
 One course fulfills the annual planning/zoning continuing education requirement.
-Certificates of completion are emailed to the individual upon completion of the class.  
+Certificates of completion are emailed to the individual upon completion of the class. 
+For more information, please visit https://www.sccounties.org/education-training. 
